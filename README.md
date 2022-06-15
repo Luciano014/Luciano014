@@ -1,0 +1,7 @@
+-sobre mim
+- meu nome e @Luciano014
+- eu estou interesado em fazer jogos
+- eu estou interessado em aprender a progamar novas linguagens.
+- eu estou aprendendo a progamar recentemente a linguagem de javaScript e scratch
+- como chegar a mim 
+-
